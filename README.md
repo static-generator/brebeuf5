@@ -13,7 +13,7 @@
 - Badminton
 
 ### My links are:
-- Facebook:
+- Facebook: https://www.facebook.com/lycangabriel.azada/
 - Discord:
 - Instagram:
 
